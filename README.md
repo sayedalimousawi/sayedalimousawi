@@ -4,6 +4,7 @@
 - 💞️ I’m looking to collaborate on Adobe Indesign Scripts
 - 📫 Email: sayedalimousawi@gmail.com
 - 📫 Telegram: https://t.me/sayedalimousawi
+- 📫 Instagram: https://www.instagram.com/sayedalimousawi/
 
 <!---
 sayedalimousawi/sayedalimousawi is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
